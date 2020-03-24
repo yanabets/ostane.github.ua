@@ -1,1 +1,1 @@
-# ostane.github.ua
+# ostane.github.io
